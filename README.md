@@ -1,7 +1,7 @@
 yo its cye
 
 
-computer science student
+computer science student (real)
 
 
 constructing a bot army
